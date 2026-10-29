@@ -7,7 +7,7 @@ I like exploring how data uncovers patterns, how technology solves real problems
 
 💬 Open to collaboration, networking, and exploring new opportunities.
 
-📧 Feel free to drop me a message at khatrimokshi47@gmail.com
-👨‍💻 LinkedIn: https://www.linkedin.com/in/mokshi-khatri34/
+Feel free to drop me a message at khatrimokshi47@gmail.com
+LinkedIn: https://www.linkedin.com/in/mokshi-khatri34/
 
-Let's connect, innovate, and build a brighter future together! 🌟
+Let's connect, innovate, and build a brighter future together! 
